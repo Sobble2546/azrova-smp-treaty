@@ -32,7 +32,7 @@ By agreeing to this treaty, we choose peace over conflict, cooperation over divi
 
 Signatures
 
-The Blues (Les Bleus) > Cnethuka:  ✅
-Lyqnet > Sparixx:  ✅
+The Blues (Les Bleus) > Cnethuka:  ✅  
+Lyqnet > Sparixx:  ✅  
 Fontaine > Hecker (Silvy):   
 Ichate > Ichate:  
