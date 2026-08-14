@@ -35,4 +35,4 @@ Signatures
 The Blues (Les Bleus) > Cnethuka:  ✅  
 Lyqnet > Sparixx:  ✅  
 Fontaine > Hecker (Silvy):   
-Ichate > Ichate:  
+Ichate > Ichate:  ✅ 
