@@ -35,4 +35,4 @@ Signatures
 The Blues (Les Bleus) > Cnethuka:  ✅  
 The leopards > Sparixx:  ✅  
 Fontaine > Hecker (Silvy):   
-Ichate > Ichate:  ✅ 
+Doomsday > Ichate:  ✅ 
