@@ -34,7 +34,7 @@ By agreeing to this treaty, we choose peace over conflict, cooperation over divi
 
 Signatures
 
-The Blues (Les Bleus) > Cnethuka:  ✅  
+The Blues (Les Bleus) > Cnethuka:  ❌ (Withdrawn)  
 The leopards > Sparixx:  ✅  
 Fontaine > Hecker (Silvy):   
 Doomsday > Ichate:  ✅ 
